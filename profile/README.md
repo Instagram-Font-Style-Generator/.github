@@ -1,4 +1,3 @@
-# Instagram Font Style Generator ➜ #𝟙 Instagram Font Generator
 
 Do you want your Instagram posts and bios to look unique and stylish? The **Instagram font style generator** is here to help! It’s a free online tool that lets you turn plain text into cool and creative fonts. Whether you're crafting captions, creating bios, or writing comments, this tool makes your content stand out from the crowd.  
 
