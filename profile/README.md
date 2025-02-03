@@ -1,6 +1,8 @@
-Do you want your Instagram posts and bios to look unique and stylish? The **Instagram font style generator** is here to help! It’s a free online tool that lets you turn plain text into cool and creative fonts. Whether you're crafting captions, creating bios, or writing comments, this tool makes your content stand out from the crowd.
-
 [![instagram font style generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+
+---
+
+Do you want your Instagram posts and bios to look unique and stylish? The **Instagram font style generator** is here to help! It’s a free online tool that lets you turn plain text into cool and creative fonts. Whether you're crafting captions, creating bios, or writing comments, this tool makes your content stand out from the crowd.
 
 ---
 
